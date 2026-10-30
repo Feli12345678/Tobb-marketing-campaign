@@ -141,7 +141,4 @@ The Your Business. Better Connected. campaign provides a proposed approach for p
 
 Preparing this campaign helped me connect my WIL experience in technology and software development with the business side of the IT industry. It also helped me understand how digital communication and marketing can support business growth.
 
-References
-
-Chaffey, D. and Ellis-Chadwick, F. (2022) Digital Marketing. 8th edn. Harlow: Pearson.
 
