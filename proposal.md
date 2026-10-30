@@ -59,7 +59,7 @@ A promotional graphic has been prepared using the campaign message Your Business
 
 6.3 Website Promotion
 
-The company’s website, https://tobb.io, can be included in promotional content so that interested customers can find more information.
+The company’s website, https://tobb.io can be included in promotional content so that interested customers can find more information.
 
 6.4 Customer Outreach
 
