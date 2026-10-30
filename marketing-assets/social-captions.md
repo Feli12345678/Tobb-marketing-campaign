@@ -8,7 +8,7 @@ Discover Tobb Technologies and explore how technology can support your business 
 
 Visit our website to learn more:
 
-https://tobb.io
+https://tobb.co.za/
 
 ## Caption 2: Small Businesses
 
@@ -18,7 +18,7 @@ Tobb Technologies aims to connect businesses with technology-related solutions.
 
 Find out more:
 
-https://tobb.io
+https://tobb.co.za/
 
 ## Caption 3: Business Growth
 
@@ -28,6 +28,6 @@ Connect with Tobb Technologies and discover more about the company and its offer
 
 **Your Business. Better Connected.**
 
-Website: https://tobb.io
+https://tobb.co.za/
 
 #TobbTechnologies #BusinessGrowth #Technology #SmallBusiness
