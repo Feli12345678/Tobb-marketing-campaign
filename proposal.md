@@ -3,7 +3,7 @@ Tobb Technologies Business Growth & Marketing Campaign Proposal
 Campaign Title: Your Business. Better Connected.
 
 Prepared for: Tobb Technologies
-Project: WIL Business Growth & Marketing Challenge
+Project: Business Growth & Marketing Challenge
 Date: 30 October 2026
 
 1. Introduction
